@@ -1,4 +1,4 @@
-
+Enhance Things 3 for macOS with top Things 3 for macOS Integration | export to PDF + quick search, the #1 integration. Includes export to PDF and quick search for a smoother
 
 
 
